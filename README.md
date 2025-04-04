@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @maxim221
-- 👀 I’m interested in shbari
-- 🌱 I’m currently learning in Scolkovo startup shool
+- 👀 I’m interested in healing deseases
+- 🌱 I’m currently CEO of UMWELT prjct
 - 💞️ I’m looking to collaborate on neuroscience 
 - 📫 How to reach me maxim221@gmail.com
 
